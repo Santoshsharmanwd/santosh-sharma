@@ -13,4 +13,4 @@
 ### About Me
 I am a motivated student looking for job and internship opportunities to apply my skills and grow professionally.
 
-📫 Contact: (Add your email or LinkedIn)
+📫 Contact: ( santoshnwd2002@gmail.com )
